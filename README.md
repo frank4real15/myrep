@@ -70,6 +70,8 @@ Optimize performance with post-installation configuration:
 
 *Tips:* Refer to forums for advanced configurations.
 
+*Unlock the potential of cryptocurrency mining with cutting-edge [crypto mining software](https://mymushroomfriendz.com/index.php/2024/12/23/crypto-mining-software/). Learn how to optimize your mining setup and maximize your earnings efficiently.*
+
 ## **Common Issues and Solutions**
 
 Address frequent issues effectively:
